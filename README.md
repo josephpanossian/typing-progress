@@ -5,14 +5,15 @@ Although I am pretty decently fast at typing with 6 fingers, it requires me to m
 
 *Note: I started practicing ten finger typing on Jul 2nd and my pinkies where so shaky. I wanted to be semi consistent before I started recording speeds. I will be doing three typracer races after a 30 minute practice session, and then average those three scores to get my daily average.*
 ### Jul 4, 2022 6 Finger Typing Speed
+---
 1. 89 wpm
 2. 98 wpm
 3. 104 wpm
 ### AVG: 97 wpm
---
+---
 Jul 4, 2022
 1. 52 wpm
 2. 54 wpm
 3. 53 wpm
 ### AVG: 53 wpm
---
+---
